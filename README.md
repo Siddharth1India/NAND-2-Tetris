@@ -1,0 +1,1 @@
+# Just a random scrapbook for my thoughts and notes
